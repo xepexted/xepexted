@@ -3,7 +3,7 @@
 - 🌱 I’m currently using Github and YouTube to learn this
 - 📫 How to reach me: steal my IP
 - 😄 Pronouns: delu/lu
-- ⚡ Fun fact: so sigma
+- ⚡ Fun fact: Low-risk stock trader
 
 <!---
 xepexted/xepexted is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
