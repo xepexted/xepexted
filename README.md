@@ -2,7 +2,7 @@
 - 👀 I’m interested in learning more about how to maximize the full potential of the flipper zero
 - 🌱 I’m currently using Github and YouTube to learn this
 - 📫 How to reach me: steal my IP
-- 😄 Pronouns: delu/lu
+- 😄 Pronouns: he/him
 - ⚡ Fun fact: Low-risk stock trader
 
 <!---
